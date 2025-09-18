@@ -1,0 +1,1 @@
+Hello my name is Cory! It wasn't really stated what we should write in here so some of my interests are books, music, video games, sports...you know, real basic stuff.
